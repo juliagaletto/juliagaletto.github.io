@@ -1,2 +1,0 @@
-# juliagaletto.github.io
-
